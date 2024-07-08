@@ -8,4 +8,6 @@
 
 - 📫 Cómo contactarme: mundowat@hotmail.com
 
-- ⚡ Dato curioso: Estas vivo, puedes hacer algo.
+- www.linkedin.com/in/ricardo-san-jose-tejedor
+
+- ⚡ Dato curioso: Hacerlo es más fácil de lo que parece y se siente muy bien.
